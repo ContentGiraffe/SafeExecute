@@ -1,1 +1,1 @@
--- laurel is a faggot
+-- ContentGiraffe is a faggot
